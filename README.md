@@ -2,4 +2,5 @@
 trying new shit out
 
 
-I was here... - bipolarmorgan
+follow this
+https://www.w3schools.com/howto/howto_website.asp
